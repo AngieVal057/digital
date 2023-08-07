@@ -1,0 +1,3 @@
+- **_Preparado 🎫_**
+- **_Modificado 🎟️_**
+- **_Confirmado 🎈_**
